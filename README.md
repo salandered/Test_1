@@ -1,2 +1,5 @@
 # im sick
-Hi, readme please. Yes, its empty here.
+there is no way i can go
+there is no place i can hide
+
+
